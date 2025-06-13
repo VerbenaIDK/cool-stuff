@@ -2,3 +2,5 @@
 Just a buncha stuff I'll add over time that I find useful or I need archiving or just want to share
 
 by VerbenaIDK aka Yasmina
+
+Copyright at what's applicable unless stated otherwise
